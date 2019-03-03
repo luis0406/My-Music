@@ -1,100 +1,43 @@
 # My-Music
-Amor volví a nacer
-Cuando te vi creer en mi
-Sin merecerlo vi la gloria de mi Dios en ti
-Verte no darte por vencida
-El día aquel que yo pensaba
-Que perdía la vida
-Tu me diste perdón
-Y una canción nueva
+Me encontraba en un desierto
+Pero fuistes mi oasis, sasiastes mi ser
+Oh Señor...
+Fuiste aquella paz,
+que calmo pues mi alma ante la tempestad que me agobiaba.
+Cuando mis enemigos se levantaron para comer mi
+carne, tropezaron, cayeron y no pudieron... Señor...
+Pues tu eres mi fortaleza y mi pronto auxilio, en mis tribulaciones.
+Pues cuando tu llegas todo cambias.
+Ohhh...
+Cuando tu llegas, todos cambias
+Ohhh...
+Cuando tu llegas, todo cambias
+De momento yo sentía que yo perecía pero tu fuerza me
+restauró, cambiaste todo lo que había en mi corazón.
+Me has hecho un hombre nuevo.
+Las tormentas vinieron y trataron de derribar mi casa,
+pero como estaba edificada sobre la roca, no la pudieron derribar.
+Cuando mis enemigos se levantaron para comer mi
+carne, tropezaron,…
 
-Y yo sin merecer
-Dios cambio mi plan
-Por que te puso el plan
-De perdonarme a mi
-A pesar de que te mentí
-Una dos tres par de veces
 
-Pero al pensar que te perdí
-Y aunque no lo merecí
-Me perdonaste como un día Dios
-Me perdono a mi
 
-Dios me ama tanto que
-Me regalo tu amor
-Y en medio de la oscuridad
-De nuestra relación
-El puso el sol
 
-Y yo juro amarte con la vida
-Prometo cuidar tu corazón así
-Como mi Dios no cuida
-Porque tu me diste perdón
-Y una canción nueva
 
-Y yo sin merecer
-Dios cambio mi plan
-Por que te puso el plan
-De perdonarme a mi
-A pesar de que te mentí
-Una dos tres par de veces
-Pero al pensar que te perdí
-Y aunque no lo merecí
-Me perdonaste como un día Dios
-Me perdono
 
-Y así sin merecer
-Dios cambio mi plan
-Por que te puso el plan
-De perdonarme a mi
-A pesar de que te mentí
-Una dos tres par de veces
-Pero al pensar que te perdí
-Y aunque no lo merecí
-Me perdonaste como un día Dios
-Me perdono a mi
 
-Pasamos huracanes
-Y soplaron vientos
-Y tu pusiste tu confianza en Dios
-Ante en ponerla en mi
-Y Dios cambio tu
-Plan plan
-Puso un nuevo
-Plan plan
-Y en tu corazón puso el perdón
-Que pocos dan dan
-Dicen que la casa la edifica la sabia
-Y el enemigo por mas que tiro
-Su labia perdió
 
-Y aquí gano el amor
-Gano el amor de Dios
-Ese amor que vivo contigo
 
-Y hoy sera mi fiel testigo
-De lo especial que haz sido conmigo
 
-Y yo sin merecer
-Dios cambio mi plan
-Porque te puso el plan
-De perdonarme a mi
-A pesar de que te mentí
-Una dos tres par de veces
-Pero al pensar de que te perdí
-Y aunque no lo merecí
-Me perdonaste como un día Dios
-Me perdono
 
-Y así sin merecer Dios
-Cambio mi plan
-Por que te puso el plan
-De perdonarme a mi
-A pesar de que te mentí
-Una dos tres par de veces
-Pero al pensar que te perdí
-Y aunque no lo merecí
-Me perdonaste como un día Dios
-Me perdono a mi
 
-Funky
+
+
+
+
+
+
+
+
+
+
